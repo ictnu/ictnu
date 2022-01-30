@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ictnu
 - 👀 I’m interested in psychology and self-development.
-- 🌱 I’m currently learning how to love myself.
+- 🌱 I’m currently learning how to cut my fringe.
 - 💞️ I’m looking to collaborate on making the world a better place to live in.
 - 📫 How to reach me: say hi and be nice. 
 
